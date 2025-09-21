@@ -1,1 +1,1 @@
-# small calligraphy business shop
+# Small calligraphy business store
